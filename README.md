@@ -4,4 +4,4 @@ Fecha realizada : 19-10-26
 - Díaz Pasache, Sebatsián Mauricio
 - Benavides Pezo, Jaime Emilio
 - Diestra Buelot, Valeria Guadalupe
-- Huamani Miriam Vanessa
+- Huamaní Diestra, Miriam Vanessa
